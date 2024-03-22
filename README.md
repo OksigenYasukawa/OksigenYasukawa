@@ -1,4 +1,4 @@
-https://pbs.twimg.com/profile_banners/1672285806382424064/1710693656/1080x360
+https://pbs.twimg.com/profile_images/1766269224937504768/M98p7G9O_400x400.jpg
 
 ## Social Media
 https://kee.so/Oksigen
